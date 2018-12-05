@@ -1,3 +1,3 @@
 # Página pessoal de Alexandre Carvalho
 
-## [Aprendizes](aprendizes.html)
+## [Aprendizes](http://alexandre-carvalho.com/aprendizes.html)
