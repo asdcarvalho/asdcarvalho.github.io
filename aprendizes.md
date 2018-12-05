@@ -1,8 +1,7 @@
 ## Referências para os aprendizes
 
 ### Ted Talks
-#### Todos os videos têm a opção de legendas em português
-#### Caso prefira dublado, alguns estão disponíveis no YouTube, mas não garanto
+#### Todos os videos têm a opção de legendas em português, caso prefira dublado, alguns estão disponíveis no YouTube, mas não garanto
 
 *[Julian Treasure - Como falar de uma forma que as pessoas queiram ouvir](https://www.ted.com/talks/julian_treasure_how_to_speak_so_that_people_want_to_listen)
 
