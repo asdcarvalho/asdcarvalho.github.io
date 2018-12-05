@@ -8,6 +8,10 @@
 
 *[Daniel Goleman - Porque não temos mais compaixão?](https://www.ted.com/talks/daniel_goleman_on_compassion)
 
+*[Linda Hill - Como Gerenciar para a criatividade coletiva](https://www.ted.com/talks/linda_hill_how_to_manage_for_collective_creativity)
+
+*[David Kelley - Como construir sua confiança criativa](https://www.ted.com/talks/david_kelley_how_to_build_your_creative_confidence)
+
 
 ### Sites
 
